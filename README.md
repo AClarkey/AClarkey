@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Claau871
-- 🌱 I’m currently learning too many things
+- 🌱 I’m currently trying to learn too many things
 
